@@ -1,1 +1,0 @@
-# davidovskyi.github.io
